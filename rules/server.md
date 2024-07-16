@@ -4,30 +4,16 @@
 
 [Нажмите здесь, чтобы открыть **Правила Игровых Зон**](https://forum.majestic-rp.ru/threads/pravila-igrovyx-zon.8084/)
 
-
-ПРАВИЛА ОГРАБЛЕНИЙ И ПОХИТОК
 [Нажмите здесь, чтобы открыть **Правила Ограблений и Похищений**](https://forum.majestic-rp.ru/threads/pravila-ograblenij-i-poxischenij.8254/)
 
-
-ПРАВИЛА СЕМЕЙНЫХ ОРГАНИЗАЦИЙ И КАПТОВ
 [Нажмите здесь, чтобы открыть **Правила Семейных Организаций и Каптов**](https://forum.majestic-rp.ru/threads/obschie-pravila-semejnyx-organizacij.1061331/)
 
-
-ПРАВИЛА ОГРАБЛЕНИЯ БАНКОВ
 [Нажмите здесь, чтобы открыть **Правила Ограбления Банков**](https://forum.majestic-rp.ru/threads/obschie-pravila-semejnyx-organizacij.1061331/)
 
-
-ПРАВИЛА ОГРАБЛЕНИЙ БИЗНЕСОВ
 [Нажмите здесь, чтобы открыть **Правила Ограбления Бизнесов**](https://forum.majestic-rp.ru/threads/pravila-ograblenija-biznesov.8050/)
 
-
-ПРАВИЛА НАПАДЕНИЯ ОСТРОВА КАЙО-ПЕРИКО
 [Нажмите здесь, чтобы открыть **Правила Нападения на Остров Кайо-Перико**](https://forum.majestic-rp.ru/threads/pravila-napadenija-oborony-ostrova-kajo-periko.645651/)
 
-
-ПРАВИЛА НАПАДЕНИЯ ТЕРРИТОРИИ ФОРТА-ЗАНКУНДО
 [Нажмите здесь, чтобы открыть **Правила Нападения на Территории Форта-Занкундо**](https://forum.majestic-rp.ru/threads/pravila-napadenija-oborony-territorii-forta-zankudo.8115/)
 
-
-ПРАВИЛА ВОЙНЫ ЗА AIRDROP 
 [Нажмите здесь, чтобы открыть **Правила Войны за AirDrop**](https://forum.majestic-rp.ru/threads/pravila-vojny-za-airdrop.210836/)
